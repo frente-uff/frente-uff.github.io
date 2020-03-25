@@ -4,14 +4,10 @@ Para apoiar essas iniciativas, estamos cadastrando voluntários para diversos ti
 
 Você também pode ajudar financeiramente, com doações de qualquer valor. As doações poderão ser feitas por meio de depósito ou transferência bancária a favor de:
 
-FUNDAÇÃO EUCLIDES DA CUNHA
-
-CNPJ: 03.438.229/0001-09
-
-BANCO DO BRASIL
-
-Ag. 4767-8 Conta 55.023-X
-
+> FUNDAÇÃO EUCLIDES DA CUNHA
+> CNPJ: 03.438.229/0001-09
+> BANCO DO BRASIL
+> Ag. 4767-8 Conta 55.023-X
 
 ## Corte com acetato
 
