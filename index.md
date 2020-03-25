@@ -2,21 +2,21 @@
 
 Descrição
 
-## Atividades
+## Atividades:
 
-- Corte com acetato
-
-Descrição
-
-  - [Whatsapp](#)
-
-- Costura
+### Corte com acetato
 
 Descrição
 
   - [Whatsapp](#)
 
-- Impressão 3D
+### Costura
+
+Descrição
+
+  - [Whatsapp](#)
+
+### Impressão 3D
 
 Descrição
 
@@ -24,7 +24,7 @@ Descrição
   - [Slack](#)
   - [Arquivos](#)
 
-- Transporte
+### Transporte
 
 Descrição
 
