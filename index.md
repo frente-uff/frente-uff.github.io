@@ -13,24 +13,24 @@ Você também pode ajudar financeiramente, com doações de qualquer valor. As d
 
 Descrição
 
-  - [Whatsapp](#)
+  - [Whatsapp](https://chat.whatsapp.com/GdzWhKEjk4UJBNXaWWPQTl)
 
 ## Costura
 
 Descrição
 
-  - [Whatsapp](#)
+  - [Whatsapp](https://chat.whatsapp.com/FIgcyP4OcHr2Qs8RgdpPFO)
 
 ## Impressão 3D
 
 Descrição
 
-  - [Whatsapp](#)
+  - [Whatsapp](https://chat.whatsapp.com/CZZ6nVgVFlODF4TmVUMwLM)
   - [Slack](#)
-  - [Arquivos](#)
+  - Arquivos: Requisite acesso através do whatsapp/slack.
 
 ## Transporte
 
 Descrição
 
-  - [Whatsapp](#)
+  - [Whatsapp](https://chat.whatsapp.com/EadStgpCD3N1yVWCqIlYfu)
