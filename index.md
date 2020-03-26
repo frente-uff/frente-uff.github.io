@@ -9,28 +9,24 @@ Você também pode ajudar financeiramente, com doações de qualquer valor. As d
 > BANCO DO BRASIL  
 > Ag. 4767-8 Conta 55.023-X
 
-## Corte com acetato
+## Corte automático
 
-Descrição
+  - [Whatsapp](https://chat.whatsapp.com/GdzWhKEjk4UJBNXaWWPQTl)
+
+## Tarefas manuais
 
   - [Whatsapp](https://chat.whatsapp.com/GdzWhKEjk4UJBNXaWWPQTl)
 
 ## Costura
 
-Descrição
-
   - [Whatsapp](https://chat.whatsapp.com/FIgcyP4OcHr2Qs8RgdpPFO)
 
 ## Impressão 3D
 
-Descrição
-
   - [Whatsapp](https://chat.whatsapp.com/CZZ6nVgVFlODF4TmVUMwLM)
-  - [Slack](#)
+  - [Slack](https://join.slack.com/t/cadvolcovid19/shared_invite/zt-d35cnbhg-vmubkFQcgEvXtvMY2LNB~Q)
   - Arquivos: Requisite acesso através do whatsapp/slack.
 
-## Transporte
-
-Descrição
+## Transporte/Logística
 
   - [Whatsapp](https://chat.whatsapp.com/EadStgpCD3N1yVWCqIlYfu)
