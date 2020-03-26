@@ -25,7 +25,7 @@ Você também pode ajudar financeiramente, com doações de qualquer valor. As d
 
   - [Grupo de Whatsapp](https://chat.whatsapp.com/CZZ6nVgVFlODF4TmVUMwLM)
   - [Slack](https://join.slack.com/t/cadvolcovid19/shared_invite/zt-d35cnbhg-vmubkFQcgEvXtvMY2LNB~Q)
-  - [Arquivos](https://gitlab.com/uff-against-covid-19)
+  - [Arquivos](https://github.com/front-uff)
 
 ## Transporte/Logística
 
