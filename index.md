@@ -11,22 +11,22 @@ Você também pode ajudar financeiramente, com doações de qualquer valor. As d
 
 ## Corte automático
 
-  - [Whatsapp](https://chat.whatsapp.com/GdzWhKEjk4UJBNXaWWPQTl)
+  - [Grupo de Whatsapp](https://chat.whatsapp.com/GdzWhKEjk4UJBNXaWWPQTl)
 
 ## Tarefas manuais
 
-  - [Whatsapp](https://chat.whatsapp.com/GdzWhKEjk4UJBNXaWWPQTl)
+  - [Grupo de Whatsapp](https://chat.whatsapp.com/GdzWhKEjk4UJBNXaWWPQTl)
 
 ## Costura
 
-  - [Whatsapp](https://chat.whatsapp.com/FIgcyP4OcHr2Qs8RgdpPFO)
+  - [Grupo de Whatsapp](https://chat.whatsapp.com/FIgcyP4OcHr2Qs8RgdpPFO)
 
 ## Impressão 3D
 
-  - [Whatsapp](https://chat.whatsapp.com/CZZ6nVgVFlODF4TmVUMwLM)
+  - [Grupo de Whatsapp](https://chat.whatsapp.com/CZZ6nVgVFlODF4TmVUMwLM)
   - [Slack](https://join.slack.com/t/cadvolcovid19/shared_invite/zt-d35cnbhg-vmubkFQcgEvXtvMY2LNB~Q)
   - Arquivos: Requisite acesso através do whatsapp/slack.
 
 ## Transporte/Logística
 
-  - [Whatsapp](https://chat.whatsapp.com/EadStgpCD3N1yVWCqIlYfu)
+  - [Grupo de Whatsapp](https://chat.whatsapp.com/EadStgpCD3N1yVWCqIlYfu)
