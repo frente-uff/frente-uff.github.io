@@ -18,7 +18,8 @@ Você também pode ajudar financeiramente, com doações de qualquer valor. As d
   - [Grupo de Whatsapp](https://chat.whatsapp.com/GdzWhKEjk4UJBNXaWWPQTl)
 
 ## Costura
-### Temporariamente, não estamos acolhendo novos voluntários nesse grupo.
+
+*Temporariamente, não estamos acolhendo novos voluntários nesse grupo.*
 
   - [~~Grupo de Whatsapp~~](#)
 
@@ -29,6 +30,7 @@ Você também pode ajudar financeiramente, com doações de qualquer valor. As d
   - [Arquivos](https://github.com/front-uff)
 
 ## Transporte/Logística
-### Temporariamente, não estamos acolhendo novos voluntários nesse grupo.
+
+*Temporariamente, não estamos acolhendo novos voluntários nesse grupo.*
 
   - [~~Grupo de Whatsapp~~](#)
