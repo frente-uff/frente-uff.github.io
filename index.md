@@ -19,7 +19,7 @@ Você também pode ajudar financeiramente, com doações de qualquer valor. As d
 
 ## Costura
 
-  - [Grupo de Whatsapp](https://chat.whatsapp.com/FIgcyP4OcHr2Qs8RgdpPFO)
+  - [~~Grupo de Whatsapp~~](#)
 
 ## Impressão 3D
 
@@ -29,4 +29,4 @@ Você também pode ajudar financeiramente, com doações de qualquer valor. As d
 
 ## Transporte/Logística
 
-  - [Grupo de Whatsapp](https://chat.whatsapp.com/EadStgpCD3N1yVWCqIlYfu)
+  - [~~Grupo de Whatsapp~~](#)
