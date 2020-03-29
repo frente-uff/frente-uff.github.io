@@ -11,11 +11,15 @@ Você também pode ajudar financeiramente, com doações de qualquer valor. As d
 
 ## Corte automático
 
-  - [Grupo de Whatsapp](https://chat.whatsapp.com/GdzWhKEjk4UJBNXaWWPQTl)
+*Temporariamente, não estamos acolhendo novos voluntários neste grupo.*
+
+  - [~~Grupo de Whatsapp~~](#)
 
 ## Tarefas manuais
 
-  - [Grupo de Whatsapp](https://chat.whatsapp.com/GdzWhKEjk4UJBNXaWWPQTl)
+*Temporariamente, não estamos acolhendo novos voluntários neste grupo.*
+
+  - [~~Grupo de Whatsapp~~](#)
 
 ## Costura
 
