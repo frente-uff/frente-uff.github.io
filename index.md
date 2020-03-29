@@ -29,8 +29,10 @@ Você também pode ajudar financeiramente, com doações de qualquer valor. As d
 
 ## Impressão 3D
 
-  - [Grupo de Whatsapp](https://chat.whatsapp.com/CZZ6nVgVFlODF4TmVUMwLM)
-  - [Slack](https://join.slack.com/t/cadvolcovid19/shared_invite/zt-d35cnbhg-vmubkFQcgEvXtvMY2LNB~Q)
+*Temporariamente, não estamos acolhendo novos voluntários neste grupo.*
+
+  - [~~Grupo de Whatsapp~~](#)
+  - [~~Slack~~](#)
   - [Arquivos](https://github.com/front-uff)
 
 ## Transporte/Logística
