@@ -33,7 +33,7 @@ Você também pode ajudar financeiramente, com doações de qualquer valor. As d
 
   - [~~Grupo de Whatsapp~~](#)
   - [~~Slack~~](#)
-  - [Arquivos](https://github.com/front-uff)
+  - [Arquivos](https://github.com/frente-uff)
 
 ## Transporte/Logística
 
